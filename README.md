@@ -14,3 +14,5 @@ K
 Y
 O
 U
+
+OK, 0 FUCKS GIVEN
